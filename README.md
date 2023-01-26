@@ -1,9 +1,5 @@
 - 👋 Hi, I’m @WheatleyRed
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 Contact me:
-QQ:619182546
+- 📫 Contact me:QQ:619182546
 
 
 ⭐⭐️⭐⭐⭐️⭐️⭐️⭐️
